@@ -1,2 +1,2 @@
 # Studying
-# Hang in there!
+# :)
